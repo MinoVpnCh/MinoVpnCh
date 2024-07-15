@@ -19,7 +19,7 @@
 [@MinoVpnAd](https://t.me/MinoVpnAd)
 
 چنل رضایت👇
-@MinoVpnRz
+@MinoVpnRz`#RRGGBB`
 
 همراه ما باشید ❤️
 
